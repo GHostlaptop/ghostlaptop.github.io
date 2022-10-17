@@ -1,0 +1,2 @@
+# ghostlaptop.github.io
+fuck
